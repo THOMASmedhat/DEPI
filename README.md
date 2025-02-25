@@ -1,7 +1,7 @@
 # DEPI
 
+Project Drive Link
+https://drive.google.com/drive/folders/1QKKHpPuyha_2gKwV8qdSJoFGUyC8IH4S?usp=sharing
 
 
 
-Brief
-(https://docs.google.com/document/d/1EEW9cEnYeRTL1vd2lLx9-08etj346hwtDBjfc2s3RB0/edit?tab=t.0)
